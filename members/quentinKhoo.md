@@ -1,4 +1,4 @@
-# John Doe
+# Quentin Khoo
 
 ## Education
 * None :(
@@ -10,3 +10,8 @@
 ## Accomplishments
 
 * None :(
+
+PIKACHU!!!
+|\__/|
+(o'.'o) ////
+((v v))//
